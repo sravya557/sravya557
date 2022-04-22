@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Sravya Sattisetti.
+- 👀 I’m interested in web development, Data Analytics, AI and software technology.
+- 🌱 I’m currently studying btech 1st year at VIT-AP University.
+- 💞️ I’m looking to collaborate with top companies with good experience.
+- 📫 Mail id: sravyanaidu887@gmail.com
+- I'M currently learning python, java.
+- I'M very enthusiastic girl, intreseted in learning new things and exploring them.
